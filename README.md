@@ -13,6 +13,8 @@ University of Europe for Applied Sciences
 ## Subject
 IT Platform – Mini Project
 
+## Presentation Link 
+https://www.canva.com/design/DAG9cxbV-rc/4KYyi1jQ8d6-EPLUKK_jag/edit?utm_content=DAG9cxbV-rc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 ---
 
 ## Project Overview
