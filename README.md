@@ -17,7 +17,7 @@ IT Platform – Mini Project
 https://www.canva.com/design/DAG9cxbV-rc/4KYyi1jQ8d6-EPLUKK_jag/edit?utm_content=DAG9cxbV-rc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 ---
 ## Video link of Explanation 
-##This is the video
+##This is the video link
 
 https://youtu.be/oXZ0KEVGwfY
 ## Project Overview
